@@ -1,7 +1,7 @@
 ### 朋友你好 👋
 
 - 📫 联系我：yefengrui@qq.com
-- 🔭 就职于：China Telecom
+- 🔭 就职于：Guangzhou
 
 一起来参与ARTS打卡！
 
